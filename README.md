@@ -1,7 +1,7 @@
 <P align="center">
 <img src="https://i.gifer.com/origin/84/84b7d7e62befb51f831bc0ed938c8742.gif" width="67px"> Sexy Quien Lo Lea UwU <img src="https://thumbs.gfycat.com/AdolescentAgileCoqui-size_restricted.gif" width="45px">
  <P align="center">
-<img src="https://giffiles.alphacoders.com/152/15268.gif" width="230" height="230"/>
+<img src="https://giffiles.alphacoders.com/152/15268.gif" width="230" height="30"/>
 </p>
 <br>
 
